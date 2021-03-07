@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+𝕎𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠 𝕞𝕪 𝕡𝕣𝕠𝕗𝕚𝕝𝕖❕
+山🝗㇄⼕ㄖ爪🝗 七ㄖ 爪丫 尸尺ㄖﾁ讠㇄🝗!
+
 <!--
 **mariellelilja/mariellelilja** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
