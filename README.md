@@ -1,11 +1,8 @@
-### 山🝗㇄⼕ㄖ爪🝗 七ㄖ 爪丫 尸尺ㄖﾁ讠㇄🝗  ⚡
-
-<br></br>
-
-<i>LinkedIn: </i> [Marielle Lilja](https://www.linkedin.com/in/marielle-lilja/)
+LinkedIn: [Marielle Lilja](https://www.linkedin.com/in/marielle-lilja/)
 
 <!--
 **mariellelilja/mariellelilja** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### 山🝗㇄⼕ㄖ爪🝗 七ㄖ 爪丫 尸尺ㄖﾁ讠㇄🝗  ⚡
 
 Here are some ideas to get you started:
 
