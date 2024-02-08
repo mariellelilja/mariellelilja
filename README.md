@@ -1,4 +1,4 @@
-LinkedIn: [Marielle Lilja](https://www.linkedin.com/in/marielle-lilja/)
+<!-- LinkedIn: [Marielle Lilja](https://www.linkedin.com/in/marielle-lilja/) -->
 
 <!--
 **mariellelilja/mariellelilja** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
